@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AloneProp
+- 👀 I’m interested in anime and Manga 
+- 🌱 I’m currently learning how to use coading
+- 💞️ I’m looking to collaborate on the YouTube channel with my friend
+- 📫 you can reach to me by contacting in my Gmail prope37@gmail.com
